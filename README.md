@@ -11,8 +11,8 @@
 - Senior QA Testers
 
 ## 🤝 Let’s Connect!
-📧 Email: shenna@h2software.net  
-🔗 [LinkedIn](https://www.linkedin.com/in/your-link-here)  
+📧 Email: shenna.laylay@h2software.net
+🔗 https://www.linkedin.com/in/itrecruiter-hrshenna/  
 💬 Open to chat if you’re looking for new opportunities!
 
 ---
